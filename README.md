@@ -211,3 +211,18 @@ Phase 4 does not claim a universally optimal configuration. Results should be in
 ## 💡 One-Line Summary
 
 **Phase 4 shows that systematic crypto alpha exists on a spectrum of risk  not in a single optimized model.**
+
+
+## 📞 Contact
+
+**Author**: DEWA  
+**Date**: December 29, 2025  
+**Status**: Phase 4 Complete ✅
+
+**Links**:
+- GitHub: [github.com/whard2205]
+- LinkedIn: [https://www.linkedin.com/in/suja-dewa-6326b130b/]
+- Instagram: cryptoniac.id , qu.4tf_ 
+- Email: syujadewakusuma@gmail.com
+
+---
